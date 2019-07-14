@@ -9,4 +9,4 @@ Well if you want to know then ask **peter parker**. A nerdy teenager who was lik
 * spidey sense
 
 
-His abilties know no bound, he was able overpower bucky, hit a few shots on Thanos, send off a big portion of outriders while protecting the gauntlet.
+His abilities know no bound, he was able overpower bucky, hit a few shots on Thanos, send off a big portion of outriders while protecting the gauntlet.
